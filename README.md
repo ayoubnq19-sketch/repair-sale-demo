@@ -79,4 +79,4 @@ repair shop software · phone repair management · sales tracker · receipt prin
 
 ---
 
-© 2026 YOUR NAME — All rights reserved. Demonstration purposes only.
+© 2026 ayoubnq19 — All rights reserved. Demonstration purposes only.
